@@ -15,4 +15,6 @@ Some things here I may have interacted with recently, some I may have not! My me
 - **W2I if I'm AFK!** - ***I don't mind being interacted with if I'm not AFK, so feel free to say hi!***
 - I can be a bit talkative once I get my start, **Let me know if that's any issue!**
 #
-## I have a BASIC DNI. --> [HERE!](https://dni-criteria.carrd.co/) <--
+ <p align="center">
+   I follow a BASIC DNI. If you think you may fall under anything regarding that, please do not engage.
+ </p>
