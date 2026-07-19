@@ -1,5 +1,5 @@
 <p align="center">
-  <img width="500" height="200" src="https://file.garden/ZoRpdo9A7k9_O99O/lgo.jpg">
+  <img width="500" height="200" src="https://predisasters.neocities.org/ON%20GUARD.png">
 </p>
 
 #
